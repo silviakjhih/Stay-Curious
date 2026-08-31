@@ -1,1 +1,1 @@
-Curiosity encourages you to explore new ideas and discover better solutions. Asking questions and learning from different sources helps expand your understanding. Every new topic can teach you something valuable
+Curiosity encourages you to explore new ideas and discover better solutions. Asking questions and learning from different sources helps expand your understanding. Every new topic can teach you something valuable   Good
